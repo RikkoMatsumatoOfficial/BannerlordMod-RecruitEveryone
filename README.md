@@ -1,0 +1,2 @@
+# BannerlordMod-RecruitEveryone
+BannerlordMod-RecruitEveryone by RikkoMatsumatoOfficial
